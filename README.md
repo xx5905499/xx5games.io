@@ -1,1 +1,1 @@
-# kirka.io players bristhebest bris poopooumgoodYT Maxxp100131 Jacob apple^^ mount technoblad dot. E$CAPE
+cookiesmmmmmmmmm is a youtuber thats bad at youtube so dont subcribe to them
